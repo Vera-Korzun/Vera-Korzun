@@ -1,6 +1,6 @@
 ### Hi there, I'm Vera 👋
 
-- 📫 How to reach me: **veraminich@gmail.com**
+📫 How to reach me: **veraminich@gmail.com**
   
 ## I’m currently learning:
 
